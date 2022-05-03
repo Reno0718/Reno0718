@@ -1,5 +1,8 @@
 ### Reno Chen
 
+**Tippie College of Business, University of Iowa**
+
+Pronouns: He/His/Him
 <!--
 **Reno0718/Reno0718** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

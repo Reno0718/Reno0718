@@ -1,4 +1,4 @@
-## Reno Chen
+# Reno Chen
 
 **Tippie College of Business, University of Iowa**
 
